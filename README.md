@@ -1,2 +1,2 @@
-# network_team9_KimWonjong_Term
+# network termproject team9 omok
 YouTube link: 
